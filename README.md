@@ -1,2 +1,0 @@
-# Nurulatiqah-binti-aziz-
-Malaysia 
